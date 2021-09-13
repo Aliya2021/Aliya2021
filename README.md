@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aliya2021
-- 👀 I’m interested in ... cyber security
+- 👀 I’m interested in ... web page development
 - 🌱 I’m currently learning ...B.tech
 - 💞️ I’m looking to collaborate on ...u learn , thinker hub
 - 📫 How to reach me ... aliyabaisalmathew1999@gmail.com
